@@ -1,0 +1,1 @@
+# panggilaja_rul
